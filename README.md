@@ -1,3 +1,3 @@
-# hollands-extreem-professioneel-medisch-zorgterroristen
+# hollands-extreem-professioneel-medische-zorgterroristen
 
 2000-2021
